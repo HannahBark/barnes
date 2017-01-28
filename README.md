@@ -1,2 +1,2 @@
 # Barnes
-![blah][barnes]
+![blah][barnes1]
