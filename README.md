@@ -17,4 +17,6 @@ Below is an example of symptoms one will need to seek medical attention for:
 
 For internal evidence, I used some phrases from "March." Quotes like "shall make of one a wife and the other a bride" and "woman falls in this age to woman" show that a central theme of Barnes's book is homosexuality. In "January", Barnes creates a character named Patience Scalpel to represent the old, traditional, narrow-mindedness ways of the past. Through these internal quotes, Barnes connects her chapters for this one theme. 
 
-For external 
+In "March", one character also asks, "What has England done to legalize these passions? Nothing!" Through the internet, I found that same sex marriage was legalized very recently (in the past 3 years). I used this phrase for my external evidence. I used "Handbook of Lesbian and Gay Studies" by Richardson and Seidman from Harner's guide. In this book, one chapter discusses lesbian and gay marriage and how some people are against it because it "denaturalizes marriage as a hetereosexual institution." I think it is clear through _Ladies Almanack_ that Barnes would find that idea ridiculous.
+
+
