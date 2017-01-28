@@ -19,4 +19,6 @@ For internal evidence, I used some phrases from "March." Quotes like "shall make
 
 In "March", one character also asks, "What has England done to legalize these passions? Nothing!" Through the internet, I found that same sex marriage was legalized very recently (in the past 3 years). I used this phrase for my external evidence. I used _Reader’s Guide to Lesbian and Gay Studies_ from Harner's guide. The guide is very large book that contains over 400 entries on the homosexuality. This guide can lead you to other books that talk about the specific subject. Murhpy provides a small summary of their point of view on the subject and their own book title. I went to the topic of marraige in the guide, and read that many authors side with Barnes and find it ridiculous that same sex marriage is such a large hurdle. One author discusses benefits couples would have if they were legally married and calls same sex marriage "natural and just." Barnes would have this same view.
 
+![april](https://lh3.googleusercontent.com/-suyo9Ahw-p4/WIz1jNdGKhI/AAAAAAAAADg/kezGjSHYMgENvMg_xu1yQXfKjHgCD7o6ACLcB/s0/studies.JPG "studies.JPG")
+
 
