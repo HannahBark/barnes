@@ -9,7 +9,7 @@ linking to the specific theme, instead of love in general.
     	Anna asked “Do you believe Barnes is using the characters to portray modern day 
       problems between the church and LGBTQ community?”  
   
-	For my external evidence, I used the same website as the previous question, 
+For my external evidence, I used the same website as the previous question, 
   but changed my search to “homosexuality church” hoping that would give me results 
   for the history of religion in social issues, like the nature of marriage. I used 
   “The stained glass closet: celibacy and homosexuality in the Church of England to
@@ -24,10 +24,9 @@ linking to the specific theme, instead of love in general.
   important shift, and used her talents to write about homosexuality in a time where the 
   subject was controversial to the holiest of people.
   
-![church](https://lh3.googleusercontent.com/Y0xGmguIN7N0QEWVQI37TnjuEncLLNuf78PrkDo6-1so0FZlG5AJEpOGKsFNujFcLwKACJw=s0 "church")
-
+  ![church](http://www.clipartbest.com/cliparts/MKc/j9K/MKcj9KjTq.gif) 
   
-	For my internal evidence, I think Patience Scalpel represents people in the church that 
+For my internal evidence, I think Patience Scalpel represents people in the church that 
   look down on homosexuality. These “ways” “were about her, above her, and before her”, 
   meaning Scalpel and narrow-minded people. In February, Barnes writes through Musset
   referring to God as the only person who would know her fate when she catches her love. 
