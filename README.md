@@ -4,7 +4,12 @@
 
 # Question 1
 
-[Question1](/barnes/question1.html) 
+[Question 1](/barnes/question1.html) 
+
+# Question 2
+
+[Question 2](/barnes/question2.html)
+
 
 # April 
 
