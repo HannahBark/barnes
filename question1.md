@@ -3,8 +3,8 @@
 Although in class, we discussed that April may be linked to the feeling of new love, rather than homosexuality specifically,
 I will still research and answer questions linking to the specific theme, instead of love in general. 
 
-    Hardwynn’s question (Taylor also asked a similar one) asked if Barnes 
-    linked symptoms in support or against homosexuality. 
+    Hardwynn’s question (Taylor also asked a similar one) asked
+    if Barnes linked these symptoms in support or against homosexuality. 
     
 I believe Barnes is in favor of it personally and shows through this chapter that is mocking people who are against it. 
 For internal evidence, I used some quotes from June. Dame Musset was going on a walk with her love; Barnes describes 
