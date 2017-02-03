@@ -37,3 +37,5 @@ For my internal evidence, I think Patience Scalpel represents people in the chur
   stand for homosexuality. 
 
 ![patience](http://les.women.it//ladies/13x.gif)
+
+[Back to Barnes](/barnes/)
