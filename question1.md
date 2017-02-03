@@ -4,7 +4,8 @@ Although in class, we discussed that April may be linked to the feeling of new l
 I will still research and answer questions linking to the specific theme, instead of love in general. 
 
     Hardwynn’s question (Taylor also asked a similar one) asked
-    if Barnes linked these symptoms in support or against homosexuality. 
+    if Barnes linked these symptoms in support or against 
+    homosexuality. 
     
 I believe Barnes is in favor of it personally and shows through this chapter that is mocking people who are against it. 
 For internal evidence, I used some quotes from June. Dame Musset was going on a walk with her love; Barnes describes 
@@ -21,3 +22,5 @@ on Harner’s site. The article is called "Lullaby for a lady's lady": Lesbian i
 Kent says Barnes’ book is “a continuation of society's reaction and an intervention into that reaction.” Kent confirms the
 idea that Barnes is against homophobia through this simple sentence. 
 	
+![djuna](https://lh3.googleusercontent.com/-tG7uolrUD4w/WJTtNkssd8I/AAAAAAAAAEM/nmlmolveYGI_w_7OPer8MaHaSWW7Fy4CgCLcB/s0/djuna.jpg "djuna")
+
