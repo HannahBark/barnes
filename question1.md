@@ -24,3 +24,4 @@ idea that Barnes is against homophobia through this simple sentence.
 	
 ![djuna](https://lh3.googleusercontent.com/-tG7uolrUD4w/WJTtNkssd8I/AAAAAAAAAEM/nmlmolveYGI_w_7OPer8MaHaSWW7Fy4CgCLcB/s0/djuna.jpg "djuna")
 
+[Back To Barnes](/barnes/) 
