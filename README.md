@@ -10,7 +10,9 @@
 
 [Religion in Literature](https://hannahbark.github.io/barnes/characters.html)
 
-[Comparison of Characters](file:///Users/hannahcailinbarker/Desktop/Spring%202017/Gloss/Forum/religion.html)
+[Comparison of Characters](https://hannahbark.github.io/barnes/characters.html)
+
+
 
 # April 
   
