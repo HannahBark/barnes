@@ -10,7 +10,7 @@
 
 [Religion in Literature](/barnes/religion.html)
 
-[Comparison of Characters](https://hannahbark.github.io/barnes/religion.html)
+[Comparison of Characters](https://hannahbark.github.io/barnes/characters.html)
 
 # April 
   
