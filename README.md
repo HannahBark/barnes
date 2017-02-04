@@ -2,13 +2,13 @@
 
 ![april](http://les.women.it//ladies/0cx.gif)
 
-# Question 1
+# Barnes' View on Homosexuality
 
-[Question 1](/barnes/question1.html) 
+[Barnes' View on Homosexuality](/barnes/question1.html) 
 
-# Question 2
+# Religion in Literature
 
-[Question 2](/barnes/question2.html)
+[Religion in Literature](/barnes/question2.html)
 
 
 # April 
