@@ -4,12 +4,11 @@
 
 # Barnes' View on Homosexuality
 
-[Barnes' View on Homosexuality](/barnes/question1.html) 
+[Barnes' View on Homosexuality](/barnes/view.html) 
 
 # Religion in Literature
 
-[Religion in Literature](/barnes/question2.html)
-
+[Religion in Literature](/barnes/religion.html)
 
 # April 
 
