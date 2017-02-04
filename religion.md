@@ -9,7 +9,7 @@ linking to the specific theme, instead of love in general.
     characters to portray modern day problems between
     the church and LGBTQ community?”  
     
- [Comparison of Characters](https://hannahbark.github.io/barnes/april/religion.html)
+ [Comparison of Characters](https://hannahbark.github.io/april/religion.html)
   
 For my external evidence, I used the same website as the previous question, 
   but changed my search to “homosexuality church” hoping that would give me results 
