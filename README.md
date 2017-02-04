@@ -13,7 +13,6 @@
 [Comparison of Characters Twine](https://hannahbark.github.io/barnes/characters.html)
 
 
-
 # April 
   
 [April](/barnes/april.html) 
