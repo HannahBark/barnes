@@ -8,7 +8,7 @@
 
 # Religion in Literature
 
-[Religion in Literature](https://hannahbark.github.io/barnes/characters.html)
+[Religion in Literature](https://hannahbark.github.io/barnes/religion.html)
 
 [Comparison of Characters](https://hannahbark.github.io/barnes/characters.html)
 
