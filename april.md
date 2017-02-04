@@ -8,7 +8,7 @@ six to eight weeks to a sobriety that includes thoughts of transmigration, levit
 myopia, and blight, The eye trickles, the breath is short, the spleen is distended,
 and the epiglottis rises and falls like the continual swallowing of the heart."
 
-![april](http://les.women.it//ladies/26x.gif 
+![april](http://les.women.it//ladies/26x.gif)
 
 I believe this excerpt from "April" of Ladies Almanack is listing these characteristics 
 and moods of a woman like that of symptoms written on a prescription. Many different 
@@ -23,7 +23,7 @@ way people see homosexuality. She is making fun of the old way.
 
 Below is an example of symptoms one will need to seek medical attention for:
 
-![medical](http://annals.org/data/Journals/AIM/19982/17TT1.jpeg 
+![medical](http://annals.org/data/Journals/AIM/19982/17TT1.jpeg)
 
 For internal evidence, I used some phrases from "March." Quotes like "shall make 
 of one a wife and the other a bride" and "woman falls in this age to woman" show 
