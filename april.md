@@ -46,3 +46,4 @@ and calls same sex marriage "natural and just." Barnes would have this same view
 
 ![april](https://lh3.googleusercontent.com/-suyo9Ahw-p4/WIz1jNdGKhI/AAAAAAAAADg/kezGjSHYMgENvMg_xu1yQXfKjHgCD7o6ACLcB/s0/studies.JPG "studies.JPG")
 
+[Back to Barnes](/barnes/) 
