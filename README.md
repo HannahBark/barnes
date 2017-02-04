@@ -10,7 +10,7 @@
 
 [Religion in Literature](https://hannahbark.github.io/barnes/religion.html)
 
-[Comparison of Characters](https://hannahbark.github.io/barnes/characters.html)
+[Comparison of Characters Twine](/barnes/characters.html)
 
 
 
