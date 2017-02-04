@@ -1,5 +1,6 @@
+## April
 
-## Acute Melancholy is noticeable in those who have gone a long way into this matter,
+Acute Melancholy is noticeable in those who have gone a long way into this matter, 
 whereas a light giggling, dancing fancy seems to support those in the very first 
 stages; brief of thought; cut of concentration; a tendency to hop, skip and jump, 
 and to misplace the eye at every single or several manifestation of girl in like 
