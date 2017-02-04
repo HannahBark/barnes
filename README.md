@@ -12,6 +12,7 @@
 
 [Comparison of Characters Twine](https://hannahbark.github.io/barnes/characters.html)
 
+[Comparison of Characters Twine](https://hannahbark.github.io/barnes/Religion%20in%20Literature.html) 
 
 # April 
   
