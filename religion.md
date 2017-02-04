@@ -5,8 +5,9 @@ rather than homosexuality specifically, I will still research and answer questio
 linking to the specific theme, instead of love in general. 
 
 
-    Anna asked “Do you believe Barnes is using the characters to
-    portray modern day problems between the church and LGBTQ community?”  
+    Anna asked “Do you believe Barnes is using the 
+    characters to portray modern day problems between
+    the church and LGBTQ community?”  
   
 For my external evidence, I used the same website as the previous question, 
   but changed my search to “homosexuality church” hoping that would give me results 
