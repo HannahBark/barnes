@@ -12,7 +12,6 @@
 
 [Comparison of Characters Twine](https://hannahbark.github.io/barnes/characters.html)
 
-[Comparison of Characters Twine](https://hannahbark.github.io/barnes/comparison.html) 
 
 # April 
   
