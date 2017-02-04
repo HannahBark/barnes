@@ -10,7 +10,7 @@
 
 [Religion in Literature](/barnes/religion.html)
 
-[Comparison of Characters](/barnes/characters.html)
+[Comparison of Characters](file:///Users/hannahcailinbarker/Desktop/Spring%202017/Gloss/Forum/religion.html)
 
 # April 
   
