@@ -43,3 +43,5 @@ read that many authors side with Barnes and find it ridiculous that same sex mar
 a large hurdle. One author discusses benefits couples would have if they were legally married 
 and calls same sex marriage "natural and just." Barnes would have this same view.
 
+![april](https://lh3.googleusercontent.com/-suyo9Ahw-p4/WIz1jNdGKhI/AAAAAAAAADg/kezGjSHYMgENvMg_xu1yQXfKjHgCD7o6ACLcB/s0/studies.JPG "studies.JPG")
+
